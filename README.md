@@ -1,1 +1,0 @@
-# buketu-khmelnitskiy
